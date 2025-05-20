@@ -13,6 +13,3 @@
 - Novelia Adinda 122450104
 
 **UNDER DEVELOPMENT ....'AKU SEHAT'.....**
-
-
-coba github yeuu asikk
